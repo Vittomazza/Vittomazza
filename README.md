@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some cool projects
 - 📫 How to reach me --> mazzavitto1@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: what if I tell you that I'm a goat? 🐐
+- ⚡ Fun fact: what if I tell you that I'm the goat? 🐐
 
 <!---
 Vittomazza/Vittomazza is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
