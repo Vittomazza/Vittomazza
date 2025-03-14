@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Rust
 - 💞️ I’m looking to collaborate on some cool projects
-- 📫 How to reach me --> mazzavitto1@gmail.com
+- 📫 How to reach me --> ig: Vittomazza
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: what if I tell you that I'm the goat? 🐐
 
